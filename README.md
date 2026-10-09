@@ -103,7 +103,7 @@ If you find any bugs or issues, feel free to contact me on Discord.
 
 For support or custom requests:
 
-👉 Discord: `[Discord](https://discord.gg/Fwex3NGPqN)`
+👉 Discord: `[Discord](https://discord.gg/sokac)`
 
 ---
 
